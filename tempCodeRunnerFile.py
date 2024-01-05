@@ -1,0 +1,1 @@
+"walkstraight/frame0052.tif"
